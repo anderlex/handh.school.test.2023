@@ -1,1 +1,1 @@
-# handh.school.test.2023
+# @anderlexx - телеграм для связи
